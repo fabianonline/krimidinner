@@ -1,0 +1,1 @@
+**Die Dateien in diesem Ordner enthalten viele Insider-Informationen zur Geschichte und den Charakteren und so, die zur Erstellung des Krimi-Dinners verwendet wurden. Wenn du noch vorhast, diese Geschichte selber mal zu spielen, dann solltest du AUF GAR KEINEN FALL weiterlesen.**
